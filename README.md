@@ -1,2 +1,0 @@
-# ADSS
-Master Degree
